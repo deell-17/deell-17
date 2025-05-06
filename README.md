@@ -1,16 +1,29 @@
-## Hi there 👋
+### oie, aqui é o dell 
 
-<!--
-**deell-17/deell-17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu sonho e ser modelo, fazer faculdade de direito ou odontologia, tambem pretendo saber mais sobre estetica e moda no geral
 
-Here are some ideas to get you started:
+<img align="right" src = "https://i.pinimg.com/originals/ff/73/ca/ff73caca56c6028a93489713ea8f2b04.gif" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+### Sobre mim:
+- Tenho 15 anos
+- estudo desenvolvimento de sistemas
+- amo animes e jogos
+- insta: @delln.nt
+
+
+### Objetivos pro futuro
+- passar no enem 
+- concursar estetica e moda 
+- me formar em alguma faculdade
+- formar uma familia linda
+- trazer orgulho para a familia
+
+
+
+
+
+
+
+
+
